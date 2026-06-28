@@ -1,4 +1,4 @@
-# 
+# Instantáneo Cubase plugins para Mac OS | Inteligente Cubase plugins para PC Windows. Con biblioteca de bucles y reducción de ruido — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
